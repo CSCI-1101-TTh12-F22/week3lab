@@ -1,4 +1,4 @@
-# Suggested discussion section activities for week 3
+# Activities for Week 3
 
 ---
 
